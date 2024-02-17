@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **anblk64@gmail.com**
 
-- ⚡ Fun fact **while most teens in my age are playing video games, i'm learning to code!**
+- ⚡ Fun fact: **while most teens in my age are playing video games, i'm learning to code!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
